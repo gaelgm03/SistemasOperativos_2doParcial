@@ -1,1 +1,0 @@
-# SistemasOperativos_2doParcial
